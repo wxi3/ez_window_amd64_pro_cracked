@@ -1,0 +1,2 @@
+# ez_window_amd64_pro_cracked
+ez扫描器破解版
